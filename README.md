@@ -10,7 +10,7 @@ and exploring new places. I'm always eager to develop new projects and collabora
 
 ### 🌟 How to Reach Me
 - 😄 Pronouns: He/Him
-- ✉️ Email: akshaykm060@gmail.com
+- ✉️ Email: km.akshay2001@gmail.com
 - 🔗 LinkedIn: [Connect with me on LinkedIn](https://www.linkedin.com/in/akshay-k-m-969389258/)
 - 🐦 Twitter: [Follow me on Twitter](https://twitter.com/AkshayKM58980)
 - 📸 Instagram: [Check out my Instagram](https://instagram.com/akshay_252001?igshid=OGQ5ZDc2ODk2ZA==)
